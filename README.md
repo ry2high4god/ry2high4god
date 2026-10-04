@@ -19,5 +19,5 @@ $\small\color{#45312a}{\textsf{c*h}}$
 <div id="header" align="center">
 
 
- ㅤㅤㅤ <a href= "https://desirwagone.carrd.co/"> carrd</a> ㅤ $${\color{#b5a088}✰}$$ ㅤ <a href= "https://desirwagone.atabook.org">atabook</a> ㅤ $${\color{#9d856b}✰}$$ ㅤ <a href= "https://guns.lol/desirwagone">guns.lol</a> ㅤ
+ ㅤㅤㅤ <a href= "https://desirwagone.carrd.co/"> carrd</a> ㅤ $${\color{#b5a088}✰}$$ ㅤ <a href= "https://ry2high4god.atabook.org/">atabook</a> ㅤ $${\color{#9d856b}✰}$$ ㅤ <a href= "https://guns.lol/ryukoo">guns.lol</a> ㅤ
 
