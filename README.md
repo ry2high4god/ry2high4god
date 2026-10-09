@@ -5,7 +5,7 @@
 <div align="left"> ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤ </div>
 <div align="left"> ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤ </div>
 <p align="center">
- $\small\color{#9d856b}{\textsf{⏒ ry or ryuko}}$ $\small\color{#967761}{\textsf{any}}$ $\small\color{#332f2c}{\textsf{prns}}$<br>
+ $\small\color{#9d856b}{\textsf{⏒ ry or cali}}$ $\small\color{#967761}{\textsf{any}}$ $\small\color{#332f2c}{\textsf{prns}}$<br>
  
 <br><img height="55" alt="Image" align="center" src="https://file.garden/akKbU9_l8hKnlTIX/IMG_4534.PNG" />
 <img height="55" alt="Image" align="center" src="https://file.garden/akKbU9_l8hKnlTIX/IMG_4535.PNG" />
