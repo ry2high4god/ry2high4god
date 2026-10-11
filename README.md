@@ -21,3 +21,5 @@ $\small\color{#45312a}{\textsf{c*h}}$
 
  ㅤㅤㅤ <a href= "https://desirwagone.carrd.co/"> carrd</a> ㅤ $${\color{#b5a088}✰}$$ ㅤ <a href= "https://ry2high4god.atabook.org/">atabook</a> ㅤ $${\color{#9d856b}✰}$$ ㅤ <a href= "https://guns.lol/ryukoo">guns.lol</a> ㅤ
 
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jqode7xqefnace3lid3dnqo6cq&cover_image=true&theme=natemoo-re&show_offline=true&background_color=524847&interchange=true&profanity=true&hide_remaster=true&bar_color=8a6460&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31jqode7xqefnace3lid3dnqo6cq&redirect=true)
